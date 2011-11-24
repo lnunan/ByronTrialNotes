@@ -19,7 +19,7 @@ Byron's Trial, Day 9 (Week 2)
 * Defense lists cases on severability:
   * Justice Casey Hill: M. N. M
   * Brampton of the Ontario Court of appeal, 2001
-  * Justice Furgeson 
+  * Justice Furguson 
     * Jacobson, 2003 or 2004? (referred to in Hill)
     * Chung [corrected alter to Lee]
 
